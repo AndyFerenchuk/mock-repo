@@ -157,6 +157,7 @@ I think it should be here.
 Hey everyone! Happy to be a part of such a great team! You're awesome ^-^
 
 ### у меня есть кот, но он злой
+How much cats can have one old woman?
 
 -----
 Hello kottans. I will hope that with the second attempt I will cope with this course))
